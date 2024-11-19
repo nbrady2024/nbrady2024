@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @nbrady2024
+- 👀 I’m interested in cybersecurity, data science, and business analytics.
+- 🌱 I’m currently learning Java and Python.
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me: nataliebrady2844@gmail.com or 4102715068
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: I love dogs and cats.
